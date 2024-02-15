@@ -1,5 +1,3 @@
 - 👋 Hi, I’m Minori
 - 👀 I’m interested in Cracking and Modding Rainbow Six Siege for Local Area Network Play :3
 - 📫 How to reach me: Discord = minori_420 Or E-Mail = admin@minori.icu
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: Im an Femboy <^^>
